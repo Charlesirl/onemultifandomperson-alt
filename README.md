@@ -22,4 +22,7 @@ Ahhh..note:English isnt my main language ... sorry if its bad ;-; .
 
 ## THANKS FOR READING :D
 
+![Image](https://github.com/user-attachments/assets/5cff7892-d8a2-47c4-9de7-a9f8b630899b)
+
+You got distracted :3
 
