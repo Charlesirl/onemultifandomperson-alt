@@ -13,19 +13,21 @@
 
 - I LOVE cuddles and piles , sit with me even if am already with someone(unless we are talking) .
 
-- also am late to trends and things like that , so if u were talking about them , i wont understand.
+   - Also am late to trends and things like that , so if u were talking about them , i wont understand.
 
-- sometimes i type in wired ways likethis or like.that. , tell me if u want me to stop , i dont mind .
+- Sometimes i type in wired ways likethis or like.that. , tell me if u want me to stop , i dont mind .
 
   - I dont accpet random friend/party req ,  if this happens i block the person/pony .
 
 - W2i cuz am almost always offtab , dont be a freaky person , i hate these ppl .
 
-> i have ADHD and i have ALOTs of issues with my memory , so plz dont hate me if i forgot something about you , am trying my best , ok?
+> I have ADHD and i have A LOT of issues with my memory , so plz dont hate me if i forgot something about you , am trying my best , ok?
 I also get distracted so easily .💔
 
-> Enlish isnt my main language , i speak arabic and japaness , sorry if my english was bad ;-;
-![Image](https://github.com/user-attachments/assets/88180679-db4c-4069-ba46-1b5008f0ea08)
+> Also , Enlish isnt my main language , i speak arabic and japaness , sorry if my english was bad ;-;
+
+
+>![Image](https://github.com/user-attachments/assets/88180679-db4c-4069-ba46-1b5008f0ea08)
 
 
 # **INTERESTS**
