@@ -19,7 +19,7 @@
 
   - I dont accpet random friend/party req ,  if this happens i block the person/pony .
 
-- W2i cuz am almost always offtab , dont be a freaky person , i hate these ppl .
+- W2i cuz am almost always ofdont be a freaky person , i hate these ppl .
 
 > I have ADHD and i have A LOT of issues with my memory , so plz dont hate me if i forgot something about you , am trying my best , ok?
 I also get distracted so easily .💔
@@ -32,20 +32,44 @@ I also get distracted so easily .💔
 
 # **INTERESTS**
 
- ### **CHARACTERS:**
+ <div align="center">
+  <details>
+    <summary>characters</summary>
+    <p align="center">
+    
+charles(henry stickmin) | henry stick man (henry stickmin) | ellie rose (henry stickmin) | ivor (minecraft:storymode) | cassie rose (minecraft:storymode) | harper
+(minecraft:storymode) | noli (roblox forsaken) | 007n7 (roblox forsaken) | veeronica (roblox forsaken) | mr.puzzles (smg4) | smg3 (smg4) | mr.(ant)tenna (Deltarune) | cuphead (cuphead) | king dice (cuphead) | green (alan becker) | The dark lord (alan becker) | shelly (Dandys world) | Astro (dandys world) | lime girl (let him go) | catnap (poppy playtime) | Venom (Marvels spider-man) | william afton (fanf) | .(THEREISMOREBTW)
 
-- charles(henry stickmin) | henry stick man (henry stickmin) | ellie rose (henry stickmin) | ivor (minecraft:storymode) | cassie rose (minecraft:storymode) | harper
-(minecraft:storymode) | noli (roblox forsaken) | 007n7 (roblox forsaken) | veeronica (roblox forsaken) | mr.puzzles (smg4) | smg3 (smg4) | mr.(ant)tenna (Deltarune) | cuphead (cuphead) | king dice (cuphead) | green (alan becker) | The dark lord (alan becker) | shelly (Dandys world) | Astro (dandys world) | lime girl (let him go) | catnap (poppy playtime) | Venom (Marvels spider-man) | william afton (fanf)...(THEREISMOREBTW)
+</p>
 
-### **MUSIC** 
-- IM SANE (axie) , terrible things (axie) , MUFFIEN (Cg5) , stuck inside (cg5 remix) , 1 of US (Cg5) , child wielding a needle (Cg5), dropthebassonthestereo (Cg5) , FREEDY (Cg5) , Hold the mine (Cg5) , AM NOT AN EGG (Cg5) , i see a dreamer (Cg5) , locked away (Cg5) , your idol (Cg5 remix) , cheat codes (nitro fun) , triple baka (miku) , magical loveshot (miku) , static (miku) , PPPP (miku and teto)...etc
+</details>
 
-### **GAMES**
-i have played ALOT of games in my life but here are the best ! 
+<div align="center">
+  <details>
+    <summary>Games</summary>
+    <p align="center">
+    Henry stickmin | undertale | minecraft:storymode | cuphead | tf2 | horizon | ghost of tsushima | minecraft | assassin' creed | metal gear solid | astro bot | rayman | little big planet 1,2,3 | Sackboy a big Adventure | batim | JUST DANCE | little nightmares | Poppy playtime | Five night at freddys | fnaf security breach | sky children of the light | just shapes and beats . 
+    </p>
+  </details>
 
-- Henry stickmin | undertale | minecraft:storymode | cuphead | tf2 | horizon | ghost of tsushima | minecraft | assassin' creed | metal gear solid | astro bot | rayman | little big planet 1,2,3 | Sackboy a big Adventure | batim | JUST DANCE | little nightmares | Poppy playtime | Five night at freddys | 
-fnaf security breach | sky children of the light | just shapes and beats .
+ <div align="center">
+  <details>
+    <summary>music</summary>
+    <p align="center">
+    IM SANE (axie) , terrible things (axie) , MUFFIEN (Cg5) , stuck inside (cg5 remix) , 1 of US (Cg5) , child wielding a needle (Cg5), dropthebassonthestereo (Cg5) , FREEDY (Cg5) , Hold the mine (Cg5) , AM NOT AN EGG (Cg5) , i see a dreamer (Cg5) , locked away (Cg5) , your idol (Cg5 remix) , cheat codes (nitro fun) , triple baka (miku) , magical loveshot (miku) , static (miku) , PPPP (miku and teto)...etc
+    </p>
+  </details>
 
-![Image](https://github.com/user-attachments/assets/7626d85a-8888-4281-9d59-aafdf6a0d930)
+  <div align="center">
+  <details>
+    <summary>hobbies</summary>
+    <p align="center">
+reading , playing games , watching T.V / films , coding , creating ocs , baseball , football , basketball , borad games , Playing musical instruments , listing to music , bakeing / cooking , drawing . 
+    </p>
+  </details>
+  
+![Image](https://github.com/user-attachments/assets/14811a39-4ae6-46de-90ee-25c286b6667c)
 
-### **ℋ𝒶𝓋ℯ 𝒶 𝓃𝒾𝒸ℯ 𝒹𝒶𝓎!**
+  <div align="center">
+
+  𝚈𝚘𝚞 𝚑𝚊𝚟𝚎 𝚋𝚎𝚎𝚗 𝚍𝚒𝚜𝚝𝚛𝚊𝚌𝚎𝚍
