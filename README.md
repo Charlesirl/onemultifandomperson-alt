@@ -26,7 +26,7 @@
 
 - W2i cuz am almost always ofdont be a freaky person , i hate these ppl .
 
-> I have ADHD and i have A LOT of issues with my memory , so plz dont hate me if i forgot something about you , am trying my best , ok?
+> I have ADHD and  ALOT of issues with my memory , so plz dont hate me if i forgot something about you , am trying my best , ok?
 I also get distracted so easily .💔
 
 > Also , Enlish isnt my main language , i speak arabic and japaness , sorry if my english was bad ;-;
