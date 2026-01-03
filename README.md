@@ -1,5 +1,7 @@
 <div align="center"> こんにちは  !!!
 
+  ![helicopter crash](https://img.shields.io/badge/helicopter%20crash-1,482-F04E38)
+
   ![Image](https://github.com/user-attachments/assets/ec5b9aeb-43a3-4efc-a175-4371abb3202a)
   
   So..this is just an alt acc for pt. 
