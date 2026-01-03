@@ -9,6 +9,8 @@
 
 ## 𝐴𝑛𝑦𝑤𝑎𝑦... 𝑡ℎ𝑖𝑛𝑔𝑠 𝑎𝑏𝑜𝑢𝑡 𝑚𝑒 𝑖𝑓 𝑢 𝑤𝑎𝑛𝑡 𝑡𝑜 𝑖𝑛𝑡.!☆
 
+✦•┈๑⋅⋯ ⋯⋅๑┈•✦
+
 - I dont use my real name , call me whatever u want , but i prefer calling me sakura ! 
 
 -   Am she/her but call me what ever u see better .
@@ -32,6 +34,7 @@ I also get distracted so easily .💔
 
 >![Image](https://github.com/user-attachments/assets/88180679-db4c-4069-ba46-1b5008f0ea08)
 
+꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷
 
 # **INTERESTS**
 <div align="center">
@@ -78,5 +81,7 @@ reading , playing games , watching T.V / films , coding , creating ocs , basebal
 ![Image](https://github.com/user-attachments/assets/14811a39-4ae6-46de-90ee-25c286b6667c)
 
   <div align="center">
+
+*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
 
   𝚈𝚘𝚞 𝚑𝚊𝚟𝚎 𝚋𝚎𝚎𝚗 𝚍𝚒𝚜𝚝𝚛𝚊𝚌𝚎𝚍
